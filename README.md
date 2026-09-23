@@ -5,6 +5,7 @@
 - 📫 How to reach me 113b05923@mailst.cjcu.edu.tw
 - 😄 Pronouns: chi
 - ⚡ Fun fact: I am a boy.
+- 
   ESG證書
   2025泰國宋卡王子大學移地英語沉浸式學習
   2026日本宮古島文化交流
